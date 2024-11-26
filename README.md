@@ -2,7 +2,14 @@
 
 En las últimas horas, una pregunta ha inundado las redes sociales: ¿Dónde ver el video de la Chilindrina Huachana? Este tema ha generado controversia luego de que un material explícito del influencer peruano Alex Brandon, conocido por su personaje inspirado en "La Chilindrina", se filtrara en plataformas como X (anteriormente Twitter) y Telegram.
 
-El video, aparentemente extraído de una transmisión en vivo, muestra a Alex Brandon en una habitación teniendo relaciones sexuales con otra persona identificada como un "Tabuco" o "Travestí".
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
 
 En las imágenes, Alex Brandon luce su característico disfraz inspirado en el personaje de María Antonieta de las Nieves, la Chilindrina, mientras comparte momentos privados que han desatado una oleada de reacciones en redes sociales.
 
